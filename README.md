@@ -9,3 +9,5 @@ Understanding the need to balance my studies with the financial realities of sta
 Thank you for taking the time to learn about my story. 
 
 Together, we can build a brighter future.
+
+please support me at 
